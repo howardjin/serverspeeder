@@ -1,4 +1,4 @@
-# serverspeeder锐速一键破解安装版
+# serverspeeder锐速一键破解安装版---
 本锐速一键破解安装会在[91yun.org我的博客](http://www.91yun.org/archives/683)持续发布更新，请大家关注
 
 破解版锐速linux一键自动安装包在本贴持续更新，大家可以加收藏夹，以后有更新都会在这个文章同步。
